@@ -1,0 +1,2 @@
+# CompleteSuicideManual2022
+简体中文版本《完全自杀手册》CompleteSuicideManual2022修订版
