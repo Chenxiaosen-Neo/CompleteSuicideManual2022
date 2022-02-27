@@ -1,2 +1,2 @@
-# 简体中文版本《完全自杀手册》CompleteSuicideManual2022修订版
+# 《完全自杀手册》CompleteSuicideManual2022修订版
 感谢Rena（YuriMiller）、hskwhrk、DL35Creative、yangbowen以及所有为此书翻译以及内容完善做出努力的人。我将对Issues板块的反馈以及内容进行进一步修订。此外，我对烧炭自杀部分进行进一步的探讨，将自己的自杀方式详细写入书中供大家参考，让我最后微光照亮需要帮助的人吧。
